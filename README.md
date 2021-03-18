@@ -12,5 +12,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about my goal.
 - 📫 How to reach me:iamnehalsingh01@gmail.com
 - 😄 Pronouns: code with fun
-- ⚡ Fun fact: eat code sleep repeat
+- ⚡ Fun fact: eat code sleep repeat 
 -->
