@@ -1,4 +1,4 @@
-### Hi Here is Nehal Singh Parmar 👋
+### Hi There I am Nehal Singh Parmar 👋
 
 
 Here are some ideas to get you started:
