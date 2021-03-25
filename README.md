@@ -11,5 +11,5 @@ Here are some ideas to get you started:
 - 📫 How to reach me:iamnehalsingh01@gmail.com
 - 😄 Pronouns: code with fun
 - ⚡ Fun fact: Eat Code Sleep Repeat 
-- 
+
 
